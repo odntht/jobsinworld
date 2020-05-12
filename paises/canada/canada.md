@@ -18,7 +18,7 @@
 » [bestjobsca](https://www.bestjobsca.com)\
 » [bridges](https://www.bridges.com)\
 » [canadainfonet](https://www.canadainfonet.org)\
-» [careerbuilder](https://www.careerbuilder.ca)\
+» [careerbuilder](https://www.careerbuilder.ca)
 
 <!-- www.careerbuilder.ca
 www.6figures.com
